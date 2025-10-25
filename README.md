@@ -1,1 +1,0 @@
-# Konfigurasi-Elektron-Bohr
